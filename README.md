@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @deeDamisi
 - 👀 I’m interested in Copywriting and Editing, Canva copy-designing, ML, Digital Marketing and Environmental sustainability💚.
-- 🌱 I’m currently learning DM and Copywriting ML ...
+- 🌱 I’m currently learning DM and Copywriting, ML ...
 - 💞️ I’m looking to collaborate on with creatives, AI enthusiasts, SDG ♻️ driven persons.
 - 📫 How to reach me oni.damilolasarah@gmail.com
 - 😄 Pronouns: ... She/Her/Ella
